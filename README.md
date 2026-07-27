@@ -1,4 +1,6 @@
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<img width="498" height="332" alt="KSIKCJZIKXIKIO ILOVEYYAALALLLLLDLDKOFOKDKP" src="https://github.com/user-attachments/assets/f57511b5-76a7-4cca-b5e3-9372f700b0a0" />
+<p align="center">
+  <img src="https://github.com/user-attachments/assets/f57511b5-76a7-4cca-b5e3-9372f700b0a0" width="400" alt="KSIKCJZIKXIKIO ILOVEYYAALALLLLLDLDKOFOKDKP">
+</p>
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀[STRAWPAGE](https://thewilds.straw.page)⠀⠀⠀ ‧₊˚ ⋅⋆. ⠀⠀⠀[STEAM](https://steamcommunity.com/id/ifjdsmstv)
 
