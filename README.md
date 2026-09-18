@@ -1,4 +1,8 @@
 <p align="center">
+  <img src="https://media.tenor.com/EeZyysgLCV0AAAAi/autumn-fall.gif" width="150" alt="awwwwww such a cute">
+</p>
+
+<p align="center">
   <img src="https://github.com/user-attachments/assets/f57511b5-76a7-4cca-b5e3-9372f700b0a0" width="400" alt="KSIKCJZIKXIKIO ILOVEYYAALALLLLLDLDKOFOKDKP">
 </p>
 
