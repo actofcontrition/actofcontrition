@@ -4,4 +4,4 @@
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀[STRAWPAGE](https://sekretnayakomnata.straw.page)⠀⠀⠀ ‧₊˚ ⋅⋆. ⠀⠀⠀[STEAM 𓆝 𓆟 ](https://steamcommunity.com/id/ifjdsmstv)
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=ldyc4agxdg0qbdd1wigoyvno6&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=53b14f&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=ldyc4agxdg0qbdd1wigoyvno6&cover_image=true&theme=natemoo-re&show_offline=false&background_color=ffffff&interchange=false&profanity=false&hide_remaster=false&bar_color=cb864d&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
