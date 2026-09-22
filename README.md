@@ -1,13 +1,13 @@
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ![ooohscarey](https://media2.giphy.com/media/v1.Y2lkPTc5MGI3NjExOTducTRpbm4yOXYxcHFwaDhlbWM0NTNiejNyaW1qZG5tbGVjZnlldCZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9cw/d8H8nLuiDAFEpWFzG7/giphy.gif)
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ![ooohscarey](https://media2.giphy.com/media/v1.Y2lkPTc5MGI3NjExOTducTRpbm4yOXYxcHFwaDhlbWM0NTNiejNyaW1qZG5tbGVjZnlldCZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9cw/d8H8nLuiDAFEpWFzG7/giphy.gif)
 
 <p align="center">
  <img width="552" height="191" alt="a976c9dc9b9f92156e987e24d57c42da (1)" src="https://github.com/user-attachments/assets/0f6e0d7f-2b7d-4137-a211-e6e902e8d3b3" />
 </p>
 
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=ldyc4agxdg0qbdd1wigoyvno6&cover_image=true&theme=natemoo-re&show_offline=false&background_color=ffffff&interchange=false&profanity=false&hide_remaster=false&bar_color=cb864d&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=ldyc4agxdg0qbdd1wigoyvno6&cover_image=true&theme=natemoo-re&show_offline=false&background_color=ffffff&interchange=false&profanity=false&hide_remaster=false&bar_color=cb864d&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ![2853742](https://media3.giphy.com/media/v1.Y2lkPTc5MGI3NjExZnhsODI4Ynd5MDhldDRpNnkwMHprZm9qOGRjbTA0NmY5eWlueTdmdSZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9cw/eGD7TFAYm4FSXtuyIR/giphy.gif)
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ![2853742](https://media3.giphy.com/media/v1.Y2lkPTc5MGI3NjExZnhsODI4Ynd5MDhldDRpNnkwMHprZm9qOGRjbTA0NmY5eWlueTdmdSZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9cw/eGD7TFAYm4FSXtuyIR/giphy.gif)
 
 <p align="center">
 <a href="https://sekretnayakomnata.straw.page"> 
@@ -20,7 +20,7 @@
 </a>
 
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ![3454323456](https://media0.giphy.com/media/v1.Y2lkPTc5MGI3NjExYnI5MzgyeHZxNmZvMDQ5ZXlsYWFsMDBvbmJsczAzMW9oejZtZG5sOCZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9cw/Dco7ehLhc9fb7cfAgw/giphy.gif)
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ![3454323456](https://media0.giphy.com/media/v1.Y2lkPTc5MGI3NjExYnI5MzgyeHZxNmZvMDQ5ZXlsYWFsMDBvbmJsczAzMW9oejZtZG5sOCZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9cw/Dco7ehLhc9fb7cfAgw/giphy.gif)
 
 
 <p align="center">
