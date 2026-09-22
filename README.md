@@ -7,7 +7,7 @@
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=ldyc4agxdg0qbdd1wigoyvno6&cover_image=true&theme=natemoo-re&show_offline=false&background_color=ffffff&interchange=false&profanity=false&hide_remaster=false&bar_color=cb864d&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ![2853742](https://media3.giphy.com/media/v1.Y2lkPTc5MGI3NjExZnhsODI4Ynd5MDhldDRpNnkwMHprZm9qOGRjbTA0NmY5eWlueTdmdSZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9cw/eGD7TFAYm4FSXtuyIR/giphy.gif)
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ![2853742](https://media3.giphy.com/media/v1.Y2lkPTc5MGI3NjExZnhsODI4Ynd5MDhldDRpNnkwMHprZm9qOGRjbTA0NmY5eWlueTdmdSZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9cw/eGD7TFAYm4FSXtuyIR/giphy.gif)
 
 <p align="center">
 <a href="https://sekretnayakomnata.straw.page"> 
