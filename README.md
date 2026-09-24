@@ -31,4 +31,6 @@
 <img width="300" height="225" alt="iidioootots" src="https://github.com/user-attachments/assets/bf399c26-44e9-459d-b4ed-5cbaaa6fb742" />
 </p>
 
-
+<p align="center">
+and now i feel the urge to redo my sp
+which is awesome
